@@ -10,8 +10,8 @@ Hey there! I'm Raghav, a Class 10 student with a passion for hacking (the ethica
 - **Memes:** I have an endless collection of memes and can find the perfect one for any situation. Need a laugh? I've got you covered!
 
 ## Fun Facts
-- I once hacked my school's Wi-Fi network just to change the name to "i'm your DAD."
-- My dream is to one day hack into the internet and solve the mystries.
+- I once hacked my school's Wi-Fi network just to change the name to "NO wifi today."
+- My dream is to become a pro hacker.
 
 ## Contact Me(☞ﾟヮﾟ)☞
 - **Email:** [your.email@example.com](mailto:raghkng2009@example.com)
